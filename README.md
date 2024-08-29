@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on Projects That Inspire Me And Make Me More Proficient
 - 📫 How to reach me:
  Number: 01025501862,
+
  Email: abdelrahmanattalla45@gmail.com,
+
  Linkedin: https://www.linkedin.com/in/abdelrahman-attallah-8b2b372ba/
 - 😄 Pronouns: He/Him 
 - ⚡ Fun fact: I am a night owl
